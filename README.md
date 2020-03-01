@@ -1,3 +1,3 @@
-Mateusz Niełacny
-13c
+Mateusz Niełacny, 
+13c, 
 s16534
